@@ -1,10 +1,7 @@
 # curie-diary
-rules of the curie diary
-1. you must love poland
-2. you must worship the fsm especially on friday
-3. you must regularly watch polish cartoons
-4. you must hate kdh
-5. you must a learn lot of science
-6. you must not be a normie who fomos
-7. you must think differently
-8. breaking these rules will have you kicked from the community
+the curie diary is top secret and only those who love polish cartoons and bartosz walaszek is allowed in
+intruders will be hass und liebe-d and fed into the radiation
+this will definitely be just a fun lil diary will all sorts of fandom stuff :-)
+i will go through trial and error to add things to the repository
+glory to the fatherland
+long live poland
