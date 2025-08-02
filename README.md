@@ -7,4 +7,4 @@ rules of the curie diary
 5. you must a learn lot of science
 6. you must not be a normie who fomos
 7. you must think differently
-breaking these rules will have you kicked from the community
+8. breaking these rules will have you kicked from the community
